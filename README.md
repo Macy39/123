@@ -1,2 +1,2 @@
-# Big-Dicks-96
+# Big-o
 some classic fun
